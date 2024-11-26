@@ -1,1 +1,0 @@
-# buy-major-token2
